@@ -4,7 +4,7 @@ These are a few of my favorite things:
 
 - sleeping in
 - Raindrops on roses
-- Whiskers on cute sneks
+- Whiskers on cute sneks and puppies
 - Bright copper kettles
 - Warm woolen mittens
 - Not editing directly on GitHub
